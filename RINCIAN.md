@@ -57,4 +57,4 @@
 
 ## Mekanisme Sayap
 
-https://github.com/user-attachments/assets/a3fc7824-1497-4d58-b22e-9bbead1b25a6
+[](https://github.com/user-attachments/assets/a3fc7824-1497-4d58-b22e-9bbead1b25a6)
