@@ -2,6 +2,9 @@
 
 ![1000167387](https://github.com/user-attachments/assets/9aedf6aa-4539-4754-8aee-12b29f7c1658)
 
+## Rangka Kasar
+![1000167038](https://github.com/user-attachments/assets/ce4b3512-53bc-401c-b490-0fef5e65afaa)
+
 
 ## Alat
 
